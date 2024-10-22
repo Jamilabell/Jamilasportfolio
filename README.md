@@ -1,4 +1,4 @@
-# Welcome! I'm Jamila Bell>
+# Welcome! I'm Jamila Bell
 
  ### [YouTube Demonstration](https://youtu.be/7eJexJVCqJo)
 
